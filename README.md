@@ -1,5 +1,14 @@
 # Skins
 All the skins I use
-# [Rafis (old)](https://skins.osuck.net/index.php?newsid=1236)
-![](https://skins.osuck.net/uploads/posts/2020-01/1580460695_3.jpg)
+# [Colorbog Edit Idke Cursor](https://rektygon.s-ul.eu/5lFZ9rIy)
+![](https://i.imgur.com/GBdMmuN.jpg)
+<br>
+# [Colorbog Edit ](https://rektygon.s-ul.eu/j7ChbvC2)
+![](https://i.imgur.com/kqr6iUy.jpg)
+<br>
+# [Selyu](https://rektygon.s-ul.eu/jwcqinVI)
+![](https://i.imgur.com/uwfrsMO.jpg)
+<br>
+# [he rack 2017 edit](https://rektygon.s-ul.eu/L9wppK4i)
+![](https://i.imgur.com/RjZ45VI.jpg)
 <br>
