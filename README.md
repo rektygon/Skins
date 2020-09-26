@@ -1,6 +1,6 @@
 # Skins
 All the skins I use
-# [Colorbog Edit Idke Cursor](https://rektygon.s-ul.eu/5lFZ9rIy)
+# [Colorbog Edit Idke Cursor](https://rektygon.s-ul.eu/H5J3algI)
 ![](https://i.imgur.com/GBdMmuN.jpg)
 <br>
 # [Colorbog Edit ](https://rektygon.s-ul.eu/j7ChbvC2)
