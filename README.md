@@ -6,6 +6,9 @@ All the skins I use
 # [Colorbog Edit ](https://rektygon.s-ul.eu/j7ChbvC2)
 ![](https://i.imgur.com/kqr6iUy.jpg)
 <br>
+# [Colorbog Edit Green](https://rektygon.s-ul.eu/ZvNzw6xX)
+![](https://i.imgur.com/nhbccJK.jpg)
+<br>
 # [Selyu](https://rektygon.s-ul.eu/jwcqinVI)
 ![](https://i.imgur.com/uwfrsMO.jpg)
 <br>
