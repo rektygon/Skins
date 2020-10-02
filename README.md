@@ -12,6 +12,9 @@ All the skins I use
 # [Selyu](https://rektygon.s-ul.eu/jwcqinVI)
 ![](https://i.imgur.com/uwfrsMO.jpg)
 <br>
+# [Rafis skin w/ Flying Tuna Aeth](https://rektygon.s-ul.eu/WUFtnddq)
+![](https://i.imgur.com/bnsAgHU.jpg)
+<br>
 # [he rack 2017 edit](https://rektygon.s-ul.eu/L9wppK4i)
 ![](https://i.imgur.com/RjZ45VI.jpg)
 <br>
