@@ -18,3 +18,6 @@ All the skins I use
 # [he rack 2017 edit](https://rektygon.s-ul.eu/L9wppK4i)
 ![](https://i.imgur.com/RjZ45VI.jpg)
 <br>
+# [Monko Edit](https://cdn.discordapp.com/attachments/780511986462359633/783520372003045386/MonkoEdit.osk)
+![](https://i.imgur.com/8tXwDP0.jpg)
+<br>
