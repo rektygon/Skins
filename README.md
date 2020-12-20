@@ -15,4 +15,9 @@ All the skins I use
 # [Monko Edit](https://cdn.discordapp.com/attachments/780511986462359633/783520372003045386/MonkoEdit.osk)
 ![](https://i.imgur.com/8tXwDP0.jpg)
 <br>
-NOTE: I CHANGE MY CURSOR VERY FREQUENTLY, SO THEY MIGHT NOT BE THE ONE SHOWN IN THE SKIN
+@settings {
+  font-size: 100;
+  # [NOTE: I CHANGE MY CURSOR VERY FREQUENTLY, SO THEY MIGHT NOT BE THE ONE SHOWN IN THE SKIN]
+}
+
+
