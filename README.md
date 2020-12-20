@@ -1,4 +1,4 @@
-# Skins
+# Skins (# [NOTE: I CHANGE MY CURSOR VERY FREQUENTLY, SO THEY MIGHT NOT BE THE ONE SHOWN IN THE SKIN])
 All the skins I use
 # [Colorbog Edit ](https://rektygon.s-ul.eu/j7ChbvC2)
 ![](https://i.imgur.com/kqr6iUy.jpg)
@@ -16,6 +16,6 @@ All the skins I use
 ![](https://i.imgur.com/8tXwDP0.jpg)
 <br>
 
-  # [NOTE: I CHANGE MY CURSOR VERY FREQUENTLY, SO THEY MIGHT NOT BE THE ONE SHOWN IN THE SKIN]
+ 
 
 
