@@ -1,13 +1,7 @@
 # Skins
 All the skins I use
-# [Colorbog Edit Idke Cursor](https://rektygon.s-ul.eu/H5J3algI)
-![](https://i.imgur.com/GBdMmuN.jpg)
-<br>
 # [Colorbog Edit ](https://rektygon.s-ul.eu/j7ChbvC2)
 ![](https://i.imgur.com/kqr6iUy.jpg)
-<br>
-# [Colorbog Edit Green](https://rektygon.s-ul.eu/ZvNzw6xX)
-![](https://i.imgur.com/nhbccJK.jpg)
 <br>
 # [Selyu](https://rektygon.s-ul.eu/jwcqinVI)
 ![](https://i.imgur.com/uwfrsMO.jpg)
@@ -21,3 +15,4 @@ All the skins I use
 # [Monko Edit](https://cdn.discordapp.com/attachments/780511986462359633/783520372003045386/MonkoEdit.osk)
 ![](https://i.imgur.com/8tXwDP0.jpg)
 <br>
+NOTE: I CHANGE MY CURSOR VERY FREQUENTLY, SO THEY MIGHT NOT BE THE ONE SHOWN IN THE SKIN
