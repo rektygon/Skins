@@ -9,7 +9,7 @@ All the skins I use
 # [Colorbog Edit ](https://rektygon.s-ul.eu/j7ChbvC2)
 ![](https://i.imgur.com/kqr6iUy.jpg)
 <br>
-# [Rafis skin w/ Flying Tuna Aeth](https://rektygon.s-ul.eu/WUFtnddq)
+# [Rafis skin w/ Flying Tuna Elements](https://rektygon.s-ul.eu/WUFtnddq)
 ![](https://i.imgur.com/bnsAgHU.jpg)
 <br>
 # [he rack 2017 edit](https://rektygon.s-ul.eu/L9wppK4i)
