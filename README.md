@@ -1,7 +1,7 @@
 # Skins (NOTE: I CHANGE MY CURSOR VERY FREQUENTLY, SO THEY MIGHT NOT BE THE ONE SHOWN IN THE SKIN)
 All the skins I use
-# [Monko Edit](https://rektygon.s-ul.eu/r36TbuaU)
-![](https://i.imgur.com/8tXwDP0.jpg)
+# [Monko Edit](https://rektygon.s-ul.eu/LpO3ZXOQ)
+![](https://i.imgur.com/6RpAgPr.png)
 <br>
 # [Selyu](https://rektygon.s-ul.eu/jwcqinVI)
 ![](https://i.imgur.com/uwfrsMO.jpg)
