@@ -23,7 +23,7 @@
 ![](https://i.imgur.com/RjZ45VI.jpg)
 <br>
 
-**#Socials:**
+# **Socials:**
 ### [osu! Profile](https://osu.ppy.sh/users/7813296)
 ### [Twitch](https://www.twitch.tv/rektygon)
 ### [Youtube](https://www.youtube.com/watch?v=Ni0-j24AIYw&t=227s)
