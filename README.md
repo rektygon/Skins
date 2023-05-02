@@ -1,5 +1,6 @@
 # Skins (NOTE: Sometimes I'm too lazy to update the skins, but it will happen every now and then)
-All the skins I use
+
+**All the skins I use:**
 # [MonkoGlass Edit](https://rektygon.s-ul.eu/GNlOhItr)
 ![](https://i.imgur.com/yDZozFd.jpg)
 <br>
@@ -21,6 +22,13 @@ All the skins I use
 # [he rack 2017 edit](https://rektygon.s-ul.eu/L9wppK4i)
 ![](https://i.imgur.com/RjZ45VI.jpg)
 <br>
+
+**Socials:**
+# [osu! Profile](https://osu.ppy.sh/users/7813296)
+# [Twitch](https://www.twitch.tv/rektygon)
+# [Youtube](https://www.youtube.com/watch?v=Ni0-j24AIYw&t=227s)
+# [Twitter](https://twitter.com/Rektygon)
+
 
  
 
