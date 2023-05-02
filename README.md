@@ -1,6 +1,7 @@
-# Skins (NOTE: Sometimes I'm too lazy to update the skins, but it will happen every now and then)
+# Skins 
+###(NOTE: Sometimes I'm too lazy to update the skins, but it will happen every now and then)
 
-**All the skins I use:**
+#**All the skins I use:**
 # [MonkoGlass Edit](https://rektygon.s-ul.eu/GNlOhItr)
 ![](https://i.imgur.com/yDZozFd.jpg)
 <br>
