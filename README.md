@@ -1,3 +1,5 @@
+# **(UPDATE: SKINS ARE NOW ALSO ON MY WEBSITE: https://rektygon.github.io)**
+
 # Skins 
 **(NOTE: Sometimes I'm too lazy to update the skins, but it will happen every now and then)**
 
